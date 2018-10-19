@@ -1,0 +1,1 @@
+9 kyu is the easiest. 1 kyu is the hardest.
